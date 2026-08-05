@@ -70,11 +70,6 @@
 
 ⠀⠀
 
-<img width="263" height="215" alt="caption" src="https://github.com/user-attachments/assets/ee894bb2-bf2a-4067-9aba-8bca6a67f432" />
-
-
-⠀⠀
-
 <img width="618" height="358" alt="PikaPika_-_Google_Chrome_28_8_2021_20_41_03_3_LI" src="https://github.com/user-attachments/assets/ca6f7b83-2029-46e8-b385-403a410dba1d" />
 
 
