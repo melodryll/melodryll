@@ -61,3 +61,35 @@
 ⠀⠀
 
 [_𝒜tabook_](https://melodryll.atabook.org) <img width="20" height="20" alt="tumblr_53432c47df95ffb03be326b9126a2eaa_7f584ea8_75" src="https://github.com/user-attachments/assets/2ce04264-3e7f-499c-bc0a-692daa86e8e7" /> [_ℛentry_](https://rentry.co/melodryll)
+
+<details>
+  <summary>open me</summary>
+  
+<img width="500" height="300" alt="Screenshot_2026-08-05-12-29-00-996_com discord" src="https://github.com/user-attachments/assets/d4c0bf55-f985-428c-bf9d-6e0f8523d231" />
+
+
+⠀⠀
+
+<img width="263" height="215" alt="caption" src="https://github.com/user-attachments/assets/ee894bb2-bf2a-4067-9aba-8bca6a67f432" />
+
+
+⠀⠀
+
+<img width="618" height="358" alt="PikaPika_-_Google_Chrome_28_8_2021_20_41_03_3_LI" src="https://github.com/user-attachments/assets/ca6f7b83-2029-46e8-b385-403a410dba1d" />
+
+
+⠀⠀
+
+<img width="500" height="364" alt="melody pelota!!" src="https://github.com/user-attachments/assets/ce374ed7-a1a4-48d7-88ec-3797eebd2619" />
+
+
+⠀⠀
+
+<img width="496" height="353" alt="hola" src="https://github.com/user-attachments/assets/40a328f6-341b-47a8-aff7-23faacd10573" />
+
+
+
+⠀⠀
+
+
+</details>
